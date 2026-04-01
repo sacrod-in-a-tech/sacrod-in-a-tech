@@ -1,7 +1,6 @@
 - 👋 Hi, everyone!!!
 - LEARNING AND FOCUSING .......
-- 
-- 
+  
 ## 🤝 Connect with me
 
 - 📧 Email: sarinabalami123@gmail.com  
