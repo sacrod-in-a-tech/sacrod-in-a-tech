@@ -1,5 +1,5 @@
 - 👋 Hi, everyone!!!
-- LEARNING AND FOCUSING .......
+- LEARNING AND GROWING .......
   
 ## 🤝 Connect with me
 
